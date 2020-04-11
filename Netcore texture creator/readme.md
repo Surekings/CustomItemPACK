@@ -1,0 +1,1 @@
+Note: Don't try to copy paste from txt just copy use type, or it will not works.
